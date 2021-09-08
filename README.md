@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Ronallstar
-- 👀 I’m interested in football, NBA, NFL, really big on fantasy football, reading, working out, dogs and public speaking
+- 👀 I’m interested in football, NBA, NFL, really big on fantasy football, reading, working out, dogs and public speaking and food.
 - 🌱 I’m currently learning how to be a better software dev, never too old to learn right.
 - 💞️ I’m looking to collaborate on small time projects that help me learn more about code and coding in general.
 - 📫 How to reach me : lordrohan@gmail.com your best bet.
